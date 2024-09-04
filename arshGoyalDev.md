@@ -1,0 +1,1 @@
+My favorite Pokémon is Lucario because it's so powerful and the aura ability.
